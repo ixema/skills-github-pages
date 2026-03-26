@@ -63,5 +63,5 @@ At the moment, I am especially interested in:
 
 ## Contact
 
-- **LinkedIn:** [Your LinkedIn]([https://www.linkedin.com/in/YOUR-LINKEDIN](https://www.linkedin.com/in/xema-carbo-64857948/))
+- **LinkedIn:** [Your LinkedIn]([https://www.linkedin.com/in/YOUR-LINKEDIN](https://www.linkedin.com/in/xema-carbo-64857948/)
 - **Email:** xema.carbo@gmail.com
